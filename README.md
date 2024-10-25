@@ -5,7 +5,7 @@
 </div> 
 <div align="center">
 
-$${\color{pink}I \space fucking \space \color{red}hate \space \color{pink}you}$$
+$${\color{GRAY}THIS \space IS \space \color{BLACK}A \space \color{WHITE}WIP}$$
 </div>
 <!--
 **RAB-IES/RAB-IES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
