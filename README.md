@@ -1,11 +1,16 @@
 <div align="center">
+ 
+![Image of BE9-D89-FF-2-DB0-4928-96-B5-5-AB0-B272-A489](https://i.postimg.cc/nVR8gtHg/BE9-D89-FF-2-DB0-4928-96-B5-5-AB0-B272-A489.png)
 
-![IMG_4644](https://github.com/user-attachments/assets/3ac36530-18f0-43af-bee9-8b975f7d1d18)
+
+
+
+![Image of IMG-5542](https://i.postimg.cc/HL5MrZyp/IMG-5542.png)
 
 </div> 
 <div align="center">
 
-$${\color{GRAY}THIS \space IS \space \color{BLACK}A \space \color{WHITE}WIP}$$
+$${\color{9F8278}THIS \space IS \space \color{A6A450}A \space\color{816166}WIP}$$
 </div>
 <!--
  
