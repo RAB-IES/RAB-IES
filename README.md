@@ -10,7 +10,7 @@
 </div> 
 <div align="center">
 
-$${\color{9F8278}THIS \space IS \space \color{A6A450}A \space\color{816166}WIP}$$
+$${\color{9F8278}THISIS  \color{A6A450}A \color{816166}WIP}$$
 </div>
 <!--
  
