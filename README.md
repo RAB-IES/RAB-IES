@@ -1,6 +1,6 @@
 <div align="center">
  
-![Image of BE9-D89-FF-2-DB0-4928-96-B5-5-AB0-B272-A489](https://i.postimg.cc/nVR8gtHg/BE9-D89-FF-2-DB0-4928-96-B5-5-AB0-B272-A489.png)
+![this os me](https://postimg.cc/f3Qv4WHn)
 
 
 
