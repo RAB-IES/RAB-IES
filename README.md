@@ -1,17 +1,12 @@
 <div align="center">
  
-![this os me](https://postimg.cc/f3Qv4WHn)
 
-
-
-
-![Image of IMG-5542](https://i.postimg.cc/HL5MrZyp/IMG-5542.png)
+![Alt Text](https://i.postimg.cc/QMbHQH6r/IMG-0663.png)
 
 </div> 
 <div align="center">
 
-$${\color{9F8278}THISIS  \color{A6A450}A \color{816166}WIP}$$
-</div>
+
 <!--
  
 **RAB-IES/RAB-IES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
