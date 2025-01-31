@@ -3,8 +3,7 @@
 
 ![Alt Text](https://i.postimg.cc/QMbHQH6r/IMG-0663.png)
 
-</div> 
-<div align="center">
+![Alt Text](https://i.postimg.cc/7h0v5s0S/Untitled58-20250131154003.png)
 
 
 <!--
