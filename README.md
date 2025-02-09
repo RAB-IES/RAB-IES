@@ -2,9 +2,7 @@
  
 
 ![Alt Text](https://i.postimg.cc/QMbHQH6r/IMG-0663.png)
-<p><span style="color:#605161;">Glorify me</span><br>
-<span style="color:#6B6863;">Idolize me</span><br>
-That’s all you need to jeopardize me</p>
+
 
 ![Alt Text](https://i.postimg.cc/7h0v5s0S/Untitled58-20250131154003.png)
 
