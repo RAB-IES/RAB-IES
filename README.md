@@ -1,7 +1,7 @@
 <div align="center">
  
 
-![Alt Text]
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=313ckut32bk4du2rjjckcmioi6km&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
 she/her 18, 4/5/6
 ![Alt Text](https://i.postimg.cc/7h0v5s0S/Untitled58-20250131154003.png)
