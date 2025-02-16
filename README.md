@@ -6,7 +6,7 @@
 
 
 
-she/her 18, 4/5/6
+not a yume idek what that is 💀🙏
 ![Alt Text](https://i.postimg.cc/7h0v5s0S/Untitled58-20250131154003.png)
 
 
