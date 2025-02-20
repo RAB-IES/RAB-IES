@@ -6,7 +6,7 @@
 
 
 
-big jjba fan(5 years) and twst fan 😏
+either in the twst area,jojo area,or with friends 
 ![Alt Text](https://i.postimg.cc/7h0v5s0S/Untitled58-20250131154003.png)
 
 
