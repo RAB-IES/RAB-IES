@@ -5,8 +5,6 @@
 ![Alt text](https://i.postimg.cc/zG2z9wz1/3-FE058-EA-F23-E-49-F8-853-E-AAACB347-D96-A.jpg)
 
 
-
-either in the twst area,jojo area,or with friends  lol
 ![Alt Text](https://i.postimg.cc/7h0v5s0S/Untitled58-20250131154003.png)
 
 
